@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @hkassin, a technical recruiter
+- 👀 I’m interested in connecting with developers and other tech professionals that are interested in finding a new job.
+- 📫 How to reach me - https://www.linkedin.com/in/harrison-kassin-007067115/ or by email hkassin@forbes.com
